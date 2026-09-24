@@ -1,4 +1,8 @@
-### Hi there 👋
+<sub> /// DEPRECATED </sub>
+
+This account has been discontinued. Please head over to ![Preca](https://github.com/preca-hoshino), Thank you.
+
+ <sub> `ヾ(❀╹◡╹)ﾉ~` </sub>
 
 <!--
 **LiuXiahong/LiuXiahong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
