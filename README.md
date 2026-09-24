@@ -1,6 +1,6 @@
 <sub> /// DEPRECATED </sub>
 
-This account has been discontinued. Please head over to ![Preca](https://github.com/preca-hoshino), Thank you.
+This account has been discontinued. Please head over to [Preca](https://github.com/preca-hoshino), Thank you.
 
  <sub> `ヾ(❀╹◡╹)ﾉ~` </sub>
 
